@@ -8,5 +8,4 @@ Zemojotresi: https://canva.link/nevb60j3shorgzz
 
 Spectrum of light: https://canva.link/29niuo5xjyl7aiw
 
-
-https://canva.link/nznz6mzbk8kvfe0
+Mars: https://canva.link/0heu5t94iocgut2
